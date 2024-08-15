@@ -1,4 +1,1 @@
-- Meow :3
-- I love ambient music and retro games
-- I’m hoping to pursue indie game design
-- I am inside your home
+I fucking love ambient music.
